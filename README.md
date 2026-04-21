@@ -1,6 +1,6 @@
 # -Lumi  
   
-Better at listening than talking  
+details (⁠＾⁠3⁠＾⁠♪  
   
 <p align="center">  
   <img src="https://i.postimg.cc/nczrHQLq/1be0a2ec4f5c9eb36255264e45961014.jpg" width="220">  
