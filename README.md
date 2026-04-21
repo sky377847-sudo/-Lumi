@@ -24,3 +24,8 @@ but I do pay attention to the little things
 
 If we get closer, you’ll see a different side of me  
 just takes a bit of time
+I’m a Highly Sensitive Person (HSP)  
+so please be gentle with your words and tone  
+
+I tend to feel things deeply  
+and small details can affect me more than you might expect
