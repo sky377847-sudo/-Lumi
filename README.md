@@ -2,9 +2,9 @@
   
 details (⁠＾⁠3⁠＾⁠♪  
   
-<p align="center">  
-  <img src="https://i.postimg.cc/nczrHQLq/1be0a2ec4f5c9eb36255264e45961014.jpg" width="220">  
-</p>  
+<p align="center">
+  <img src="https://i.postimg.cc/bwFXbGg5/a76c7f84655f49e047fa609f86ec0fc7.jpg" width="220">
+</p> 
   
 I’m not someone who interacts all the time    
 or responds to every conversation right away    
