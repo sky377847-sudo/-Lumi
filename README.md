@@ -1,4 +1,4 @@
-# Please read the details about me.  
+# Please read the details about me. If you would like to talk to me or come to see me.   
   
 details (⁠＾⁠3⁠＾⁠♪  
   
