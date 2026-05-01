@@ -1,4 +1,4 @@
-# -Lumi  
+# Please read the details about me.  
   
 details (⁠＾⁠3⁠＾⁠♪  
   
